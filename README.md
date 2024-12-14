@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Deceptionaire
+- 👋 Hi, I’m @LainaKates
 - I love challenging myself to learn and understand wherever my interests take me.
 - 📫 How to reach me:
  email: alainakh8701@gmail.com
